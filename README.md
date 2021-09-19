@@ -21,5 +21,5 @@ Storing Islamic Contents
 # Sunnah 
 * [মিসওয়াক : প্রিয় নবীর প্রিয় সুন্নত](https://www.alkawsar.com/bn/article/2723/)
 
-# Tajkiyaye Nafs
+# Tazkiatun Nafs
 * [মুসলিম পুরুষের দৃষ্টি](https://www.muslimmedia.info/2017/05/20/gaze-of-muslim-men)
