@@ -4,6 +4,9 @@ Storing Islamic Contents
 ## Al-Qur'an Tafsir
 * [Complete Tafsir of Surah Al-Mulk by Nouman Ali Khan (Part 1)](https://youtu.be/m3bSWAW4Nms)
 
+## Sunnah 
+* [মিসওয়াক : প্রিয় নবীর প্রিয় সুন্নত](https://www.alkawsar.com/bn/article/2723/)
+
 ## Seerah
 * [Prophet Muhammad SallallahuAlayhiwassalam Biography - SEERAH](https://www.youtube.com/playlist?list=PLExCKwROz20G3bmpu7TfCJLC8QYNUyXgY)
 
@@ -17,9 +20,6 @@ Storing Islamic Contents
 * [Islamic Network](https://github.com/islamic-network)
 * [Public repo matching the topic #muslim](https://github.com/topics/muslim)
 * [Public repo matching the topic #islam](https://github.com/topics/islam)
-
-## Sunnah 
-* [মিসওয়াক : প্রিয় নবীর প্রিয় সুন্নত](https://www.alkawsar.com/bn/article/2723/)
 
 ## Tazkiatun Nafs
 * [মুসলিম পুরুষের দৃষ্টি](https://www.muslimmedia.info/2017/05/20/gaze-of-muslim-men)
