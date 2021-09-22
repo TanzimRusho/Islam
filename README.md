@@ -23,6 +23,7 @@ Storing Islamic Contents
 
 ## Tazkiatun Nafs
 * [মুসলিম পুরুষের দৃষ্টি](https://www.muslimmedia.info/2017/05/20/gaze-of-muslim-men)
+* [Islamic Ruling on Masturbation | Shaykh Uthman Bin Farooq](https://youtu.be/BQQR-GkqECo)
 
 ## People of Cave (Media)
 * [People of Cave - Google Site (Under Construction)](https://sites.google.com/view/peopleofcave/home)
