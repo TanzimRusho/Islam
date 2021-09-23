@@ -25,6 +25,9 @@ Storing Islamic Contents
 * [মুসলিম পুরুষের দৃষ্টি](https://www.muslimmedia.info/2017/05/20/gaze-of-muslim-men)
 * [Islamic Ruling on Masturbation | Shaykh Uthman Bin Farooq](https://youtu.be/BQQR-GkqECo)
 
+## Research
+* [ইসলামকে কিভাবে জানবেন? কিভাবে ইসলাম নিয়ে গবেষণা করবেন? | The Believer Bangla](https://www.youtube.com/watch?v=m1bx7F0zxDI)
+
 ## People of Cave (Media)
 * [People of Cave - Google Site (Under Construction)](https://sites.google.com/view/peopleofcave/home)
 * [People of Cave - Youtube](https://www.youtube.com/channel/UCiXoSDjt_1iA1mGe2_kEHCw) 
