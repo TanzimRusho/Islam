@@ -11,6 +11,7 @@ Storing Islamic Contents
 * [Prophet Muhammad SallallahuAlayhiwassalam Biography - SEERAH](https://www.youtube.com/playlist?list=PLExCKwROz20G3bmpu7TfCJLC8QYNUyXgY)
 
 ## Life of Sahaba (Rodiallahu Anhum)
+* [List of Sahaba (Rodiallahu Anhum)](https://en.wikipedia.org/wiki/List_of_Sahabah)
 * [Omar Ibn Khattab (RA): 10 Unique Virtues](https://youtu.be/BI-LQkkDflA)
 
 ## Islamic Blogs 
