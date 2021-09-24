@@ -32,6 +32,9 @@ Storing Islamic Contents
 ## Research
 * [ইসলামকে কিভাবে জানবেন? কিভাবে ইসলাম নিয়ে গবেষণা করবেন? | The Believer Bangla](https://www.youtube.com/watch?v=m1bx7F0zxDI)
 
+## Q&A
+* [Celebrating birthdays is not allowed](https://islamqa.info/en/answers/1027/celebrating-birthdays-is-not-allowed)
+
 ## People of Cave (Media)
 * [People of Cave - Google Site (Under Construction)](https://sites.google.com/view/peopleofcave/home)
 * [People of Cave - Youtube](https://www.youtube.com/channel/UCiXoSDjt_1iA1mGe2_kEHCw) 
