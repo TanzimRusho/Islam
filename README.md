@@ -22,8 +22,8 @@ Storing Islamic Contents
 
 ## Islamic Resources on GitHub
 * [Islamic Network](https://github.com/islamic-network)
-* [Public repo matching the topic #muslim](https://github.com/topics/muslim)
-* [Public repo matching the topic #islam](https://github.com/topics/islam)
+* [Public repos matching the topic #muslim](https://github.com/topics/muslim)
+* [Public repos matching the topic #islam](https://github.com/topics/islam)
 
 ## Tazkiatun Nafs
 * [মুসলিম পুরুষের দৃষ্টি](https://www.muslimmedia.info/2017/05/20/gaze-of-muslim-men)
