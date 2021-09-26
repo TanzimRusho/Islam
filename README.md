@@ -35,6 +35,9 @@ Storing Islamic Contents
 ## Q&A
 * [Celebrating birthdays is not allowed](https://islamqa.info/en/answers/1027/celebrating-birthdays-is-not-allowed)
 
+## Islamic Apps
+* [Dua and Azkar](https://play.google.com/store/apps/details?id=com.ls.arabic&hl=en&gl=US)
+
 ## People of Cave (Media)
 * [People of Cave - Google Site (Under Construction)](https://sites.google.com/view/peopleofcave/home)
 * [People of Cave - Youtube](https://www.youtube.com/channel/UCiXoSDjt_1iA1mGe2_kEHCw) 
