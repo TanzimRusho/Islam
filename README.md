@@ -34,6 +34,7 @@ Storing Islamic Contents
 
 ## Q&A
 * [Celebrating birthdays is not allowed](https://islamqa.info/en/answers/1027/celebrating-birthdays-is-not-allowed)
+* [THE GOLDEN CHAIN OF NARRATORS](https://hadithanswers.com/the-golden-chain-of-narrators/)
 
 ## Islamic Apps
 * [Dua and Azkar](https://play.google.com/store/apps/details?id=com.ls.arabic&hl=en&gl=US)
