@@ -32,6 +32,9 @@ Storing Islamic Contents
 * [মুসলিম পুরুষের দৃষ্টি](https://www.muslimmedia.info/2017/05/20/gaze-of-muslim-men)
 * [Islamic Ruling on Masturbation | Shaykh Uthman Bin Farooq](https://youtu.be/BQQR-GkqECo)
 
+## Bid'at
+* [বহুল প্রচলিত ১০০ বিদ'আত | Tafseerul Quran](https://youtube.com/playlist?list=PLrIXHGCtjCatU-Hq94XaUK1QicJWPGVvA)
+
 ## Research
 * [ইসলামকে কিভাবে জানবেন? কিভাবে ইসলাম নিয়ে গবেষণা করবেন? | The Believer Bangla](https://www.youtube.com/watch?v=m1bx7F0zxDI)
 
