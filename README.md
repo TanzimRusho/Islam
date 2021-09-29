@@ -7,6 +7,9 @@ Storing Islamic Contents
 ## Thematic Introduction to the Surahs of Al-Qur'an 
 * [How many Surahs are in Al-Qur'an? A Thematic Introduction to the Surahs](https://www.soundvision.com/article/a-thematic-introduction-to-the-surahs-of-the-qur-an)
 
+## Allah Subhanahu Wa Ta'ala's Names
+* [আল-গাফুর, আল-গাফির, আল-গাফফার](https://youtu.be/vW7snSkC7eI)
+
 ## Sunnah 
 * [মিসওয়াক : প্রিয় নবীর প্রিয় সুন্নত](https://www.alkawsar.com/bn/article/2723/)
 
