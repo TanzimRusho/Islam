@@ -3,6 +3,7 @@ Storing Islamic Contents
 
 ## Al-Qur'an Tafsir
 * [Complete Tafsir of Surah Al-Mulk by Nouman Ali Khan (Part 1)](https://youtu.be/m3bSWAW4Nms)
+* [Explanation of Soorah Al-Nasr](https://islamweb.net/en/article/135451/explanation-of-soorah-an-nasr)
 
 ## Thematic Introduction to the Surahs of Al-Qur'an 
 * [How many Surahs are in Al-Qur'an? A Thematic Introduction to the Surahs](https://www.soundvision.com/article/a-thematic-introduction-to-the-surahs-of-the-qur-an)
