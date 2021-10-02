@@ -39,6 +39,9 @@ Storing Islamic Contents
 ## Research
 * [ইসলামকে কিভাবে জানবেন? কিভাবে ইসলাম নিয়ে গবেষণা করবেন? | The Believer Bangla](https://www.youtube.com/watch?v=m1bx7F0zxDI)
 
+## Islam and Science
+* [Evolutionist vs Shaykh Uthman - Surprise Ending](https://youtube.com/watch?v=BCxq3iTWLDY&feature=share)
+
 ## Q&A
 * [Celebrating birthdays is not allowed](https://islamqa.info/en/answers/1027/celebrating-birthdays-is-not-allowed)
 * [THE GOLDEN CHAIN OF NARRATORS](https://hadithanswers.com/the-golden-chain-of-narrators/)
