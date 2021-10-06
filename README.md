@@ -42,6 +42,9 @@ Storing Islamic Contents
 ## Islam and Science
 * [Evolutionist vs Shaykh Uthman - Surprise Ending](https://youtube.com/watch?v=BCxq3iTWLDY&feature=share)
 
+## Recitations
+* [সম্পূর্ণ কুরআন (১১৪ সুরা) শুধু মাত্র বাংলা তর্জমা তিলাওয়াত](https://www.youtube.com/playlist?list=PL6jOs1TTHB75x7HRDJsLVyoZ0RhC9KOp5)
+
 ## Q&A
 * [Celebrating birthdays is not allowed](https://islamqa.info/en/answers/1027/celebrating-birthdays-is-not-allowed)
 * [THE GOLDEN CHAIN OF NARRATORS](https://hadithanswers.com/the-golden-chain-of-narrators/)
