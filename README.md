@@ -50,9 +50,11 @@ Storing Islamic Contents
 * [THE GOLDEN CHAIN OF NARRATORS](https://hadithanswers.com/the-golden-chain-of-narrators/)
 * [Is being a robotic engineer haram?](https://www.assimalhakeem.net/2021/02/14/is-being-a-robotic-engineer-haram-i-think-it-is-only-haram-if-u-make-the-robot-look-like-human-then-it-is-only-haram-so-is-making-any-kind-of-robots-haram/)
 * [Satanic Verses](https://islamqa.info/en/answers/4135/satanic-verses)
+* [ইসলামের বিরুদ্ধে উত্থাপিত প্রশ্নসমূহের জবাব ও সংশয়ের নিরসন](https://response-to-anti-islam.com/)
 
 ## Islamic Apps
 * [Dua and Azkar](https://play.google.com/store/apps/details?id=com.ls.arabic&hl=en&gl=US)
+* [ইসলামবিরোধীদের জবাব Response to Anti-Islam](https://play.google.com/store/apps/details?id=response.to.anti.islam&hl=en&gl=US)
 
 ## People of Cave (Media)
 * [People of Cave - Google Site (Under Construction)](https://sites.google.com/view/peopleofcave/home)
