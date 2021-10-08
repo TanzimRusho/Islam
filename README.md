@@ -52,8 +52,11 @@ Storing Islamic Contents
 * [Satanic Verses](https://islamqa.info/en/answers/4135/satanic-verses)
 * [ইসলামের বিরুদ্ধে উত্থাপিত প্রশ্নসমূহের জবাব ও সংশয়ের নিরসন](https://response-to-anti-islam.com/)
 
+## Debates and Conversations
+* [Evangelical Female Preachers vs Sheikh Uthman Ibn Farooq](https://youtu.be/3gTV8l-5WAI)
+
 ## Misconceptions about Islam
-* [Satanic Verses debunked by Shaykh Uthman](https://youtu.be/_TRsZR7Q6fQ)
+* [Satanic Verses debunked by Sheikh Uthman](https://youtu.be/_TRsZR7Q6fQ)
 
 ## Islamic Apps
 * [Dua and Azkar](https://play.google.com/store/apps/details?id=com.ls.arabic&hl=en&gl=US)
