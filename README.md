@@ -52,6 +52,9 @@ Storing Islamic Contents
 * [Satanic Verses](https://islamqa.info/en/answers/4135/satanic-verses)
 * [ইসলামের বিরুদ্ধে উত্থাপিত প্রশ্নসমূহের জবাব ও সংশয়ের নিরসন](https://response-to-anti-islam.com/)
 
+## Misconceptions about Islam
+* [Satanic Verses debunked by Shaykh Uthman](https://youtu.be/_TRsZR7Q6fQ)
+
 ## Islamic Apps
 * [Dua and Azkar](https://play.google.com/store/apps/details?id=com.ls.arabic&hl=en&gl=US)
 * [ইসলামবিরোধীদের জবাব Response to Anti-Islam](https://play.google.com/store/apps/details?id=response.to.anti.islam&hl=en&gl=US)
