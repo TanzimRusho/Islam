@@ -63,6 +63,9 @@ Storing Islamic Contents
 * [Dua and Azkar](https://play.google.com/store/apps/details?id=com.ls.arabic&hl=en&gl=US)
 * [ইসলামবিরোধীদের জবাব Response to Anti-Islam](https://play.google.com/store/apps/details?id=response.to.anti.islam&hl=en&gl=US)
 
+## Resources
+* [iERA Downloads Archive](https://iera.org/downloads/)
+
 ## People of Cave (Media)
 * [People of Cave - Google Site (Under Construction)](https://sites.google.com/view/peopleofcave/home)
 * [People of Cave - Youtube](https://www.youtube.com/channel/UCiXoSDjt_1iA1mGe2_kEHCw) 
