@@ -67,6 +67,9 @@ Storing Islamic Contents
 ## Resources
 * [iERA Downloads Archive](https://iera.org/downloads/)
 
+## News
+* [The Future of World Religions: Population Growth Projections, 2010-2050](https://www.pewforum.org/2015/04/02/religious-projections-2010-2050/)
+
 ## People of Cave (Media)
 * [People of Cave - Google Site (Under Construction)](https://sites.google.com/view/peopleofcave/home)
 * [People of Cave - Youtube](https://www.youtube.com/channel/UCiXoSDjt_1iA1mGe2_kEHCw) 
