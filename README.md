@@ -11,6 +11,9 @@ Storing Islamic Contents
 ## Thematic Introduction to the Surahs of Al-Qur'an 
 * [How many Surahs are in Al-Qur'an? A Thematic Introduction to the Surahs](https://www.soundvision.com/article/a-thematic-introduction-to-the-surahs-of-the-qur-an)
 
+## Miracles of Al-Qur'an
+* [Birmingham Quran manuscript](https://en.wikipedia.org/wiki/Birmingham_Quran_manuscript)
+
 ## Sunnah 
 * [মিসওয়াক : প্রিয় নবীর প্রিয় সুন্নত](https://www.alkawsar.com/bn/article/2723/)
 
