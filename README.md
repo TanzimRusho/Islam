@@ -20,6 +20,9 @@ Storing Islamic Contents
 ## Seerah
 * [Prophet Muhammad SallallahuAlayhiwassalam Biography - SEERAH](https://www.youtube.com/playlist?list=PLExCKwROz20G3bmpu7TfCJLC8QYNUyXgY)
 
+## Hadith
+* [Types of Hadith](https://www.muftisays.com/blog/abu+mohammed/455_18-10-2010/types-of-hadith.html)
+
 ## Lives of Sahaba (Rodiallahu Anhum)
 * [The Firsts | The Forerunners of Islam](https://youtube.com/playlist?list=PLQ02IYL5pmhHFl7j6wPcFTZmlQvRhsejp)
 * [List of Sahaba (Rodiallahu Anhum)](https://en.wikipedia.org/wiki/List_of_Sahabah)
