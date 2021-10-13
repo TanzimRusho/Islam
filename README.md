@@ -25,7 +25,6 @@ Storing Islamic Contents
 
 ## Lives of Sahaba (Rodiallahu Anhum)
 * [List of Sahaba (Rodiallahu Anhum)](https://en.wikipedia.org/wiki/List_of_Sahabah)
-* [Omar Ibn Khattab (RA): 10 Unique Virtues](https://youtu.be/BI-LQkkDflA)
 
 ## Islamic Blogs 
 * [How we should read the Quran](https://onepathnetwork.com/how-we-should-read-the-quran/?gclid=Cj0KCQjws4aKBhDPARIsAIWH0JVdQAdgZnJhptRUiUe47luOAC41Vg78u4AEZv4CMCNL26PsG3-h62YaAmcQEALw_wcB)
