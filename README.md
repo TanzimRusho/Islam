@@ -27,7 +27,9 @@ Storing Islamic Contents
 * [List of Sahaba (Rodiallahu Anhum)](https://en.wikipedia.org/wiki/List_of_Sahabah)
 
 ## Islamic Blogs 
-* [How we should read the Quran](https://onepathnetwork.com/how-we-should-read-the-quran/?gclid=Cj0KCQjws4aKBhDPARIsAIWH0JVdQAdgZnJhptRUiUe47luOAC41Vg78u4AEZv4CMCNL26PsG3-h62YaAmcQEALw_wcB)
+* [How we should read the Quran](https://onepathnetwork.com/how-we-should-read-the-quran/?* gclid=Cj0KCQjws4aKBhDPARIsAIWH0JVdQAdgZnJhptRUiUe47luOAC41Vg78u4AEZv4CMCNL26PsG3-h62YaAmcQEALw_wcB)
+* [জান্নাতে বাড়ি বানানোর দশটি সহজ উপায়](https://www.muslimmedia.info/2018/10/15/10-easy-ways-to-make-house-in-jannah?fbclid=IwAR0oA62ZSxkfzYiai2XRZv-bAJD0qARWetN2Fsd_mj7Ed_N9lYGXmhzl__U)
+* [শিশুর অন্তরে কুরআনের প্রতি ভালোবাসা সৃষ্টি করার উপায়](https://www.muslimmedia.info/2019/07/03/instill-love-for-quran-in-childs-heart)
 
 ## Islamic Resources on GitHub
 * [Islamic Network](https://github.com/islamic-network)
@@ -41,11 +43,16 @@ Storing Islamic Contents
 ## Bid'at
 * [বহুল প্রচলিত ১০০ বিদ'আত | Tafseerul Quran](https://youtube.com/playlist?list=PLrIXHGCtjCatU-Hq94XaUK1QicJWPGVvA)
 
+## Dawah
+* [The One Challenge Atheists Cannot Answer](https://muslimskeptic.com/2021/05/31/challenge-atheists-cannot-answer/)
+* [দাওয়াহ ও দাই’র বৈশিষ্ট্য](https://www.muslimmedia.info/2018/03/12/characteristics-of-preaching-and-preachers)
+
 ## Research
 * [ইসলামকে কিভাবে জানবেন? কিভাবে ইসলাম নিয়ে গবেষণা করবেন? | The Believer Bangla](https://www.youtube.com/watch?v=m1bx7F0zxDI)
 
 ## Islam and Science
 * [Evolutionist vs Shaykh Uthman - Surprise Ending](https://youtube.com/watch?v=BCxq3iTWLDY&feature=share)
+* [স্যার আইজ্যাক নিউটনের উপর মুসলিম প্রভাব](https://www.muslimmedia.info/2020/06/26/muslim-influence-on-newton)
 
 ## Recitations
 * [সম্পূর্ণ কুরআন (১১৪ সুরা) শুধু মাত্র বাংলা তর্জমা তিলাওয়াত](https://www.youtube.com/playlist?list=PL6jOs1TTHB75x7HRDJsLVyoZ0RhC9KOp5)
@@ -64,6 +71,7 @@ Storing Islamic Contents
 * [A Refutation to the “Satanic Verses” Incident](https://siraajunmuneer.wordpress.com/2008/07/01/a-refutation-to-the-%E2%80%9Csatanic-verses%E2%80%9D-incident/)
 * [Q&A on "Satanic Verses"](https://islamqa.info/en/answers/4135/satanic-verses)
 * [ইসলামের বিরুদ্ধে উত্থাপিত প্রশ্নসমূহের জবাব ও সংশয়ের নিরসন](https://response-to-anti-islam.com/)
+* [কা’বা: মূর্তিপূজকদের মন্দির, নাকি ইবরাহীম (আ.) এর নির্মাণ করা ইবাদাতখানা?](https://www.muslimmedia.info/2018/08/20/is-kaba-a-pagan-temple)
 
 ## Islamic Apps
 * [Dua and Azkar](https://play.google.com/store/apps/details?id=com.ls.arabic&hl=en&gl=US)
