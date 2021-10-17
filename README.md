@@ -60,9 +60,9 @@ Storing Islamic Contents
 * [Atheist vs Sheikh Uthman](https://youtu.be/Q3WUniPNfos)
 
 ## Refutations of Misconceptions about Islam
-* [Satanic Verses debunked by Sheikh Uthman](https://youtu.be/_TRsZR7Q6fQ)
+* ["Satanic Verses" debunked by Sheikh Uthman](https://youtu.be/_TRsZR7Q6fQ)
 * [A Refutation to the “Satanic Verses” Incident](https://siraajunmuneer.wordpress.com/2008/07/01/a-refutation-to-the-%E2%80%9Csatanic-verses%E2%80%9D-incident/)
-* [Q&A on Satanic Verses](https://islamqa.info/en/answers/4135/satanic-verses)
+* [Q&A on "Satanic Verses"](https://islamqa.info/en/answers/4135/satanic-verses)
 * [ইসলামের বিরুদ্ধে উত্থাপিত প্রশ্নসমূহের জবাব ও সংশয়ের নিরসন](https://response-to-anti-islam.com/)
 
 ## Islamic Apps
