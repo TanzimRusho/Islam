@@ -27,7 +27,7 @@ Storing Islamic Contents
 * [List of Sahaba (Rodiallahu Anhum)](https://en.wikipedia.org/wiki/List_of_Sahabah)
 
 ## Islamic Blogs 
-* [How we should read the Quran](https://onepathnetwork.com/how-we-should-read-the-quran/?* gclid=Cj0KCQjws4aKBhDPARIsAIWH0JVdQAdgZnJhptRUiUe47luOAC41Vg78u4AEZv4CMCNL26PsG3-h62YaAmcQEALw_wcB)
+* [How we should read the Quran](https://onepathnetwork.com/how-we-should-read-the-quran/?*%20gclid=Cj0KCQjws4aKBhDPARIsAIWH0JVdQAdgZnJhptRUiUe47luOAC41Vg78u4AEZv4CMCNL26PsG3-h62YaAmcQEALw_wcB)
 * [জান্নাতে বাড়ি বানানোর দশটি সহজ উপায়](https://www.muslimmedia.info/2018/10/15/10-easy-ways-to-make-house-in-jannah?fbclid=IwAR0oA62ZSxkfzYiai2XRZv-bAJD0qARWetN2Fsd_mj7Ed_N9lYGXmhzl__U)
 * [শিশুর অন্তরে কুরআনের প্রতি ভালোবাসা সৃষ্টি করার উপায়](https://www.muslimmedia.info/2019/07/03/instill-love-for-quran-in-childs-heart)
 
