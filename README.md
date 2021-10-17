@@ -61,7 +61,7 @@ Storing Islamic Contents
 * [Evangelical Female Preachers vs Sheikh Uthman Ibn Farooq](https://youtu.be/3gTV8l-5WAI)
 * [Atheist vs Sheikh Uthman](https://youtu.be/Q3WUniPNfos)
 
-## Misconceptions about Islam
+## Refutations of Misconceptions about Islam
 * [Satanic Verses debunked by Sheikh Uthman](https://youtu.be/_TRsZR7Q6fQ)
 * [A Refutation to the “Satanic Verses” Incident](https://siraajunmuneer.wordpress.com/2008/07/01/a-refutation-to-the-%E2%80%9Csatanic-verses%E2%80%9D-incident/)
 
