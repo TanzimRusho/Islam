@@ -54,8 +54,6 @@ Storing Islamic Contents
 * [Celebrating birthdays is not allowed](https://islamqa.info/en/answers/1027/celebrating-birthdays-is-not-allowed)
 * [THE GOLDEN CHAIN OF NARRATORS](https://hadithanswers.com/the-golden-chain-of-narrators/)
 * [Is being a robotic engineer haram?](https://www.assimalhakeem.net/2021/02/14/is-being-a-robotic-engineer-haram-i-think-it-is-only-haram-if-u-make-the-robot-look-like-human-then-it-is-only-haram-so-is-making-any-kind-of-robots-haram/)
-* [Satanic Verses](https://islamqa.info/en/answers/4135/satanic-verses)
-* [ইসলামের বিরুদ্ধে উত্থাপিত প্রশ্নসমূহের জবাব ও সংশয়ের নিরসন](https://response-to-anti-islam.com/)
 
 ## Debates and Conversations
 * [Evangelical Female Preachers vs Sheikh Uthman Ibn Farooq](https://youtu.be/3gTV8l-5WAI)
@@ -64,6 +62,8 @@ Storing Islamic Contents
 ## Refutations of Misconceptions about Islam
 * [Satanic Verses debunked by Sheikh Uthman](https://youtu.be/_TRsZR7Q6fQ)
 * [A Refutation to the “Satanic Verses” Incident](https://siraajunmuneer.wordpress.com/2008/07/01/a-refutation-to-the-%E2%80%9Csatanic-verses%E2%80%9D-incident/)
+* [Q&A on Satanic Verses](https://islamqa.info/en/answers/4135/satanic-verses)
+* [ইসলামের বিরুদ্ধে উত্থাপিত প্রশ্নসমূহের জবাব ও সংশয়ের নিরসন](https://response-to-anti-islam.com/)
 
 ## Islamic Apps
 * [Dua and Azkar](https://play.google.com/store/apps/details?id=com.ls.arabic&hl=en&gl=US)
