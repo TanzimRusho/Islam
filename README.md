@@ -63,6 +63,7 @@ Storing Islamic Contents
 
 ## Misconceptions about Islam
 * [Satanic Verses debunked by Sheikh Uthman](https://youtu.be/_TRsZR7Q6fQ)
+* [A Refutation to the “Satanic Verses” Incident](https://siraajunmuneer.wordpress.com/2008/07/01/a-refutation-to-the-%E2%80%9Csatanic-verses%E2%80%9D-incident/)
 
 ## Islamic Apps
 * [Dua and Azkar](https://play.google.com/store/apps/details?id=com.ls.arabic&hl=en&gl=US)
