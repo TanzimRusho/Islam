@@ -79,7 +79,7 @@ Storing Islamic Contents
 
 ## Resources
 * [iERA Downloads Archive](https://iera.org/downloads/)
-* [Dr. Khondonker Abdullah Jahangir Books](https://www.islamicboisomahar.in/2017/08/blog-post_60.html)
+* [Dr. Khondoker Abdullah Jahangir Books](https://www.islamicboisomahar.in/2017/08/blog-post_60.html)
 
 ## News
 * [The Future of World Religions: Population Growth Projections, 2010-2050](https://www.pewforum.org/2015/04/02/religious-projections-2010-2050/)
