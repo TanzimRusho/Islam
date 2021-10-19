@@ -73,6 +73,9 @@ Storing Islamic Contents
 * [ইসলামের বিরুদ্ধে উত্থাপিত প্রশ্নসমূহের জবাব ও সংশয়ের নিরসন](https://response-to-anti-islam.com/)
 * [কা’বা: মূর্তিপূজকদের মন্দির, নাকি ইবরাহীম (আ.) এর নির্মাণ করা ইবাদাতখানা?](https://www.muslimmedia.info/2018/08/20/is-kaba-a-pagan-temple)
 
+## Comparative Religion
+* [Historical reliability of the Gospels](https://en.wikipedia.org/wiki/Historical_reliability_of_the_Gospels)
+
 ## Islamic Apps
 * [Dua and Azkar](https://play.google.com/store/apps/details?id=com.ls.arabic&hl=en&gl=US)
 * [ইসলামবিরোধীদের জবাব Response to Anti-Islam](https://play.google.com/store/apps/details?id=response.to.anti.islam&hl=en&gl=US)
