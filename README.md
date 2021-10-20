@@ -30,6 +30,7 @@ Storing Islamic Contents
 * [How we should read the Quran](https://onepathnetwork.com/how-we-should-read-the-quran/?*%20gclid=Cj0KCQjws4aKBhDPARIsAIWH0JVdQAdgZnJhptRUiUe47luOAC41Vg78u4AEZv4CMCNL26PsG3-h62YaAmcQEALw_wcB)
 * [জান্নাতে বাড়ি বানানোর দশটি সহজ উপায়](https://www.muslimmedia.info/2018/10/15/10-easy-ways-to-make-house-in-jannah?fbclid=IwAR0oA62ZSxkfzYiai2XRZv-bAJD0qARWetN2Fsd_mj7Ed_N9lYGXmhzl__U)
 * [শিশুর অন্তরে কুরআনের প্রতি ভালোবাসা সৃষ্টি করার উপায়](https://www.muslimmedia.info/2019/07/03/instill-love-for-quran-in-childs-heart)
+* [‘ইজাজুল কুরআন](https://mohammedtouahaakbar.wordpress.com/2014/10/17/%E0%A6%87%E0%A6%9C%E0%A6%BE%E0%A6%9C%E0%A7%81%E0%A6%B2-%E0%A6%95%E0%A7%81%E0%A6%B0%E0%A6%86%E0%A6%A8/)
 
 ## Islamic Resources on GitHub
 * [Islamic Network](https://github.com/islamic-network)
