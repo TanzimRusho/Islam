@@ -13,6 +13,7 @@ Storing Islamic Contents
 
 ## Miracles of Al-Qur'an
 * [Birmingham Quran manuscript](https://en.wikipedia.org/wiki/Birmingham_Quran_manuscript)
+* [A Buried Ancient City confirms an Amazing Quran Ayah](https://www.youtube.com/watch?v=2oclm0CZ7Vw)
 
 ## Sunnah 
 * [মিসওয়াক : প্রিয় নবীর প্রিয় সুন্নত](https://www.alkawsar.com/bn/article/2723/)
