@@ -78,6 +78,9 @@ Storing Islamic Contents
 ## Comparative Religion
 * [Historical reliability of the Gospels](https://en.wikipedia.org/wiki/Historical_reliability_of_the_Gospels)
 
+## Islamic Education
+* [Darul Uloom Deoband - The System of Education](http://www.darululoom-deoband.com/english/sys_of_edu/index.htm?fbclid=IwAR1vlEYF4jY3HgOsLYrRGfr1CuM1tZJ_PsK7-CwZIw6CAqIIWzROmd16lHE)
+
 ## Islamic Apps
 * [Dua and Azkar](https://play.google.com/store/apps/details?id=com.ls.arabic&hl=en&gl=US)
 * [ইসলামবিরোধীদের জবাব Response to Anti-Islam](https://play.google.com/store/apps/details?id=response.to.anti.islam&hl=en&gl=US)
