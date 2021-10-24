@@ -42,6 +42,7 @@ Storing Islamic Contents
 ## Tazkiatun Nafs
 * [মুসলিম পুরুষের দৃষ্টি](https://www.muslimmedia.info/2017/05/20/gaze-of-muslim-men)
 * [Islamic Ruling on Masturbation | Shaykh Uthman Bin Farooq](https://youtu.be/BQQR-GkqECo)
+* [The Truth about Music](https://www.youtube.com/watch?v=LJBngoRNUIA&list=TLPQMjQxMDIwMjEihi67TWbVUg&index=3)
 
 ## Bid'at
 * [বহুল প্রচলিত ১০০ বিদ'আত | Tafseerul Quran](https://youtube.com/playlist?list=PLrIXHGCtjCatU-Hq94XaUK1QicJWPGVvA)
