@@ -50,6 +50,9 @@ Storing Islamic Contents
 * [The One Challenge Atheists Cannot Answer](https://muslimskeptic.com/2021/05/31/challenge-atheists-cannot-answer/)
 * [দাওয়াহ ও দাই’র বৈশিষ্ট্য](https://www.muslimmedia.info/2018/03/12/characteristics-of-preaching-and-preachers)
 
+## Converts to Islam
+* [Muslim Convert Stories](https://www.youtube.com/channel/UCKWs-9bZPIUkIErZar9dovw)
+
 ## Research
 * [ইসলামকে কিভাবে জানবেন? কিভাবে ইসলাম নিয়ে গবেষণা করবেন? | The Believer Bangla](https://www.youtube.com/watch?v=m1bx7F0zxDI)
 
