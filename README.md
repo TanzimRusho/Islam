@@ -72,6 +72,7 @@ Storing Islamic Contents
 ## Debates and Conversations
 * [Evangelical Female Preachers vs Sheikh Uthman Ibn Farooq](https://youtu.be/3gTV8l-5WAI)
 * [Atheist vs Sheikh Uthman](https://youtu.be/Q3WUniPNfos)
+* [Alabama Preacher is Tongue-Tied in Debate w/ Muslim [Sh. Uthman ibn Farooq]](https://www.youtube.com/watch?v=ivM-d3Wy1qI)
 
 ## Refutations of Misconceptions about Islam
 * ["Satanic Verses" debunked by Sheikh Uthman](https://youtu.be/_TRsZR7Q6fQ)
