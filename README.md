@@ -16,6 +16,9 @@ Storing Islamic Contents
 * [Birmingham Quran manuscript](https://en.wikipedia.org/wiki/Birmingham_Quran_manuscript)
 * [A Buried Ancient City confirms an Amazing Quran Ayah](https://www.youtube.com/watch?v=2oclm0CZ7Vw)
 
+## Memorizing Al-Qur'an
+* [How to Memorize Qur'an](https://www.youtube.com/playlist?list=PLECBCcYUViwuFLmshBomOVlIzfzvMubUF) 
+
 ## Sunnah 
 * [মিসওয়াক : প্রিয় নবীর প্রিয় সুন্নত](https://www.alkawsar.com/bn/article/2723/)
 
@@ -30,6 +33,8 @@ Storing Islamic Contents
 
 ## Arabic Learning
 * [Arabic Reading | Saajid Liphum](https://www.youtube.com/playlist?list=PLECBCcYUViwu1ZwDD-nX5fM_uEJDkENbx)
+* [Madinah Arabic: Book 1](https://www.youtube.com/playlist?list=PLECBCcYUViwvwj-sIWTMZUVW6xGBgBO1l)
+* [Learning Arabic Through Prayer](https://www.youtube.com/playlist?list=PLECBCcYUViwsFMaIzLnVWg8qJR9SsXlWo)
 
 ## Islamic Blogs 
 * [How we should read the Quran](https://onepathnetwork.com/how-we-should-read-the-quran/?*%20gclid=Cj0KCQjws4aKBhDPARIsAIWH0JVdQAdgZnJhptRUiUe47luOAC41Vg78u4AEZv4CMCNL26PsG3-h62YaAmcQEALw_wcB)
