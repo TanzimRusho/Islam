@@ -52,6 +52,7 @@ Storing Islamic Contents
 
 ## Converts to Islam
 * [Muslim Convert Stories](https://www.youtube.com/channel/UCKWs-9bZPIUkIErZar9dovw)
+* [From Hinduism to Islam - Priyanka Singh](https://www.youtube.com/watch?app=desktop&v=6pb9fXAMPKE&fbclid=IwAR3cIlKf077Gg224utKt9yeAGmWpJq5wyHqKUdhJHdlnTnGg7QHBh05HTyY)
 
 ## Research
 * [ইসলামকে কিভাবে জানবেন? কিভাবে ইসলাম নিয়ে গবেষণা করবেন? | The Believer Bangla](https://www.youtube.com/watch?v=m1bx7F0zxDI)
