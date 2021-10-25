@@ -57,10 +57,12 @@ Storing Islamic Contents
 ## Dawah
 * [The One Challenge Atheists Cannot Answer](https://muslimskeptic.com/2021/05/31/challenge-atheists-cannot-answer/)
 * [দাওয়াহ ও দাই’র বৈশিষ্ট্য](https://www.muslimmedia.info/2018/03/12/characteristics-of-preaching-and-preachers)
+* [আল্লাহ নাস্তিকদের বিষয়ে কি বলেছেন?](https://www.youtube.com/watch?v=tdin4_dFaXs)
 
 ## Converts to Islam
 * [Muslim Convert Stories](https://www.youtube.com/channel/UCKWs-9bZPIUkIErZar9dovw)
 * [From Hinduism to Islam - Priyanka Singh](https://www.youtube.com/watch?app=desktop&v=6pb9fXAMPKE&fbclid=IwAR3cIlKf077Gg224utKt9yeAGmWpJq5wyHqKUdhJHdlnTnGg7QHBh05HTyY)
+* [Bravest 16 year old Muslim Convert in Israel!](https://www.youtube.com/watch?v=RFnd0PLxcK0)
 
 ## Research
 * [ইসলামকে কিভাবে জানবেন? কিভাবে ইসলাম নিয়ে গবেষণা করবেন? | The Believer Bangla](https://www.youtube.com/watch?v=m1bx7F0zxDI)
