@@ -12,10 +12,6 @@ Storing Islamic Contents
 ## Thematic Introduction to the Surahs of Al-Qur'an 
 * [How many Surahs are in Al-Qur'an? A Thematic Introduction to the Surahs](https://www.soundvision.com/article/a-thematic-introduction-to-the-surahs-of-the-qur-an)
 
-## Miracles of Al-Qur'an
-* [Birmingham Quran manuscript](https://en.wikipedia.org/wiki/Birmingham_Quran_manuscript)
-* [A Buried Ancient City confirms an Amazing Quran Ayah](https://www.youtube.com/watch?v=2oclm0CZ7Vw)
-
 ## Memorizing Al-Qur'an
 * [How to Memorize Qur'an](https://www.youtube.com/playlist?list=PLECBCcYUViwuFLmshBomOVlIzfzvMubUF) 
 
