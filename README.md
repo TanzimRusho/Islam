@@ -19,14 +19,17 @@ Storing Islamic Contents
 ## Memorizing Al-Qur'an
 * [How to Memorize Qur'an](https://www.youtube.com/playlist?list=PLECBCcYUViwuFLmshBomOVlIzfzvMubUF) 
 
+## Hadith
+* [Types of Hadith](https://www.muftisays.com/blog/abu+mohammed/455_18-10-2010/types-of-hadith.html)
+
 ## Sunnah 
 * [মিসওয়াক : প্রিয় নবীর প্রিয় সুন্নত](https://www.alkawsar.com/bn/article/2723/)
 
 ## Seerah
 * [Prophet Muhammad SallallahuAlayhiwassalam Biography - SEERAH](https://www.youtube.com/playlist?list=PLExCKwROz20G3bmpu7TfCJLC8QYNUyXgY)
 
-## Hadith
-* [Types of Hadith](https://www.muftisays.com/blog/abu+mohammed/455_18-10-2010/types-of-hadith.html)
+## Lives of Prophets (Alaihimus Salam)
+* [Why did Ibraheem alaihissalam leave his wife Hajar and Son in the desert? - Sheikh Assim Al Hakeem](https://www.youtube.com/watch?v=QhK2AApPz2I)
 
 ## Lives of Sahaba (Rodiallahu Anhum)
 * [List of Sahaba (Rodiallahu Anhum)](https://en.wikipedia.org/wiki/List_of_Sahabah)
@@ -77,7 +80,6 @@ Storing Islamic Contents
 * [Celebrating birthdays is not allowed](https://islamqa.info/en/answers/1027/celebrating-birthdays-is-not-allowed)
 * [THE GOLDEN CHAIN OF NARRATORS](https://hadithanswers.com/the-golden-chain-of-narrators/)
 * [Is being a robotic engineer haram?](https://www.assimalhakeem.net/2021/02/14/is-being-a-robotic-engineer-haram-i-think-it-is-only-haram-if-u-make-the-robot-look-like-human-then-it-is-only-haram-so-is-making-any-kind-of-robots-haram/)
-* [Why did Ibraheem alaihissalam leave his wife Hajar and Son in the desert? - Sheikh Assim Al Hakeem](https://www.youtube.com/watch?v=QhK2AApPz2I)
 
 ## Debates and Conversations
 * [Evangelical Female Preachers vs Sheikh Uthman Ibn Farooq](https://youtu.be/3gTV8l-5WAI)
