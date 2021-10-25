@@ -81,6 +81,7 @@ Storing Islamic Contents
 * [THE GOLDEN CHAIN OF NARRATORS](https://hadithanswers.com/the-golden-chain-of-narrators/)
 * [Is being a robotic engineer haram?](https://www.assimalhakeem.net/2021/02/14/is-being-a-robotic-engineer-haram-i-think-it-is-only-haram-if-u-make-the-robot-look-like-human-then-it-is-only-haram-so-is-making-any-kind-of-robots-haram/)
 * [Is Bitcoin / Cryptocurrency halal in Islamic point of view? - Assim al hakeem](https://www.youtube.com/watch?v=HFagu4Avf4M)
+* [বিট কয়েন বা ভার্চুয়াল মুদ্রা লেনদেনের হুকুম কী?](https://ahlehaqmedia.com/11236/)
 * [Is flipping a coin to make decisions permissible? What about Prophet (ﷺ) drawing lots? - Assim al hakeem](https://www.youtube.com/watch?v=RK3EjfyL7Zk)
 * [About working in a mobile banking company which belongs to a riba based commercial bank](https://www.assimalhakeem.net/2017/11/12/there-is-a-mobile-banking-company-in-bangladesh-namely-bkash-the-main-service-of-it-is-transferring-money-and-charging-commission-for-that-the-company-belongs-to-a-riba-based-commercial-banks-though/)
 * [বিকাশ ও রকেট লেনদেন কি জায়েজ?](https://ifatwa.info/2979/?fbclid=IwAR1VrELbPmrth-rP5BhENDCXVKaFjPwi_fD9Sh3Xp4OB74_uNsQDP46-Cxk)
