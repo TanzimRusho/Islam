@@ -77,6 +77,7 @@ Storing Islamic Contents
 * [Celebrating birthdays is not allowed](https://islamqa.info/en/answers/1027/celebrating-birthdays-is-not-allowed)
 * [THE GOLDEN CHAIN OF NARRATORS](https://hadithanswers.com/the-golden-chain-of-narrators/)
 * [Is being a robotic engineer haram?](https://www.assimalhakeem.net/2021/02/14/is-being-a-robotic-engineer-haram-i-think-it-is-only-haram-if-u-make-the-robot-look-like-human-then-it-is-only-haram-so-is-making-any-kind-of-robots-haram/)
+* [Why did Ibraheem alaihissalam leave his wife Hajar and Son in the desert? - Sheikh Assim Al Hakeem](https://www.youtube.com/watch?v=QhK2AApPz2I)
 
 ## Debates and Conversations
 * [Evangelical Female Preachers vs Sheikh Uthman Ibn Farooq](https://youtu.be/3gTV8l-5WAI)
