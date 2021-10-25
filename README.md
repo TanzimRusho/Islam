@@ -26,6 +26,7 @@ Storing Islamic Contents
 
 ## Lives of Prophets (Alaihimus Salam)
 * [Why did Ibraheem alaihissalam leave his wife Hajar and Son in the desert? - Sheikh Assim Al Hakeem](https://www.youtube.com/watch?v=QhK2AApPz2I)
+* [মুসা (আলাইহিস সালাম) এবং বনী ইসরাঈলের পুরো ইতিহাস - পর্ব ১\২](https://www.youtube.com/watch?v=Zg1g8dybIlY)
 
 ## Lives of Sahaba (Rodiallahu Anhum)
 * [List of Sahaba (Rodiallahu Anhum)](https://en.wikipedia.org/wiki/List_of_Sahabah)
@@ -58,6 +59,7 @@ Storing Islamic Contents
 * [The One Challenge Atheists Cannot Answer](https://muslimskeptic.com/2021/05/31/challenge-atheists-cannot-answer/)
 * [দাওয়াহ ও দাই’র বৈশিষ্ট্য](https://www.muslimmedia.info/2018/03/12/characteristics-of-preaching-and-preachers)
 * [আল্লাহ নাস্তিকদের বিষয়ে কি বলেছেন?](https://www.youtube.com/watch?v=tdin4_dFaXs)
+* [নব্য নাস্তিকদের নয়া মূর্খতা ও বিভ্রান্তি !](https://www.youtube.com/watch?v=sUExwTCt588)
 
 ## Converts to Islam
 * [Muslim Convert Stories](https://www.youtube.com/channel/UCKWs-9bZPIUkIErZar9dovw)
