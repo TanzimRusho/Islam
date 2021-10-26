@@ -60,11 +60,13 @@ Storing Islamic Contents
 * [দাওয়াহ ও দাই’র বৈশিষ্ট্য](https://www.muslimmedia.info/2018/03/12/characteristics-of-preaching-and-preachers)
 * [আল্লাহ নাস্তিকদের বিষয়ে কি বলেছেন?](https://www.youtube.com/watch?v=tdin4_dFaXs)
 * [নব্য নাস্তিকদের নয়া মূর্খতা ও বিভ্রান্তি !](https://www.youtube.com/watch?v=sUExwTCt588)
+* [How to Give Dawah...to an Athiest? - Dr. Sabeel Ahmed](https://www.youtube.com/watch?v=D4ZbTpVoWMQ&list=LL0SvEADxIC0qphr1HrODV-w&index=250)
 
 ## Converts to Islam
 * [Muslim Convert Stories](https://www.youtube.com/channel/UCKWs-9bZPIUkIErZar9dovw)
 * [From Hinduism to Islam - Priyanka Singh](https://www.youtube.com/watch?app=desktop&v=6pb9fXAMPKE&fbclid=IwAR3cIlKf077Gg224utKt9yeAGmWpJq5wyHqKUdhJHdlnTnGg7QHBh05HTyY)
 * [Bravest 16 year old Muslim Convert in Israel!](https://www.youtube.com/watch?v=RFnd0PLxcK0)
+* [I am Happy to be a Muslim - Cuban American Converts to Islam](https://www.youtube.com/watch?v=HbifACClIvg&list=LL0SvEADxIC0qphr1HrODV-w&index=256)
 
 ## Research
 * [ইসলামকে কিভাবে জানবেন? কিভাবে ইসলাম নিয়ে গবেষণা করবেন? | The Believer Bangla](https://www.youtube.com/watch?v=m1bx7F0zxDI)
@@ -91,6 +93,7 @@ Storing Islamic Contents
 * [Atheist vs Sheikh Uthman](https://youtu.be/Q3WUniPNfos)
 * [Alabama Preacher is Tongue-Tied in Debate w/ Muslim [Sh. Uthman ibn Farooq]](https://www.youtube.com/watch?v=ivM-d3Wy1qI)
 * [The Open Stage](https://www.youtube.com/playlist?list=PLo-2VxJrnWwaymVvufNyfT18_2m4XywpC)
+* [Christian Muslim Debate got a little hot – Missionary said ‘We hit the wall’ and left](https://www.youtube.com/watch?v=lfpUf1VkFn4&list=LL0SvEADxIC0qphr1HrODV-w&index=251)
 
 ## Refutations of Misconceptions about Islam
 * ["Satanic Verses" debunked by Sheikh Uthman](https://youtu.be/_TRsZR7Q6fQ)
@@ -98,6 +101,7 @@ Storing Islamic Contents
 * [Q&A on "Satanic Verses"](https://islamqa.info/en/answers/4135/satanic-verses)
 * [ইসলামের বিরুদ্ধে উত্থাপিত প্রশ্নসমূহের জবাব ও সংশয়ের নিরসন](https://response-to-anti-islam.com/)
 * [কা’বা: মূর্তিপূজকদের মন্দির, নাকি ইবরাহীম (আ.) এর নির্মাণ করা ইবাদাতখানা?](https://www.muslimmedia.info/2018/08/20/is-kaba-a-pagan-temple)
+* [Responding to Common Misconceptions About Islam | Dr Sabeel Ahmed](https://www.youtube.com/watch?v=h3wSKiViv8w&list=LL0SvEADxIC0qphr1HrODV-w&index=259)
 
 ## Comparative Religion
 * [Historical reliability of the Gospels](https://en.wikipedia.org/wiki/Historical_reliability_of_the_Gospels)
