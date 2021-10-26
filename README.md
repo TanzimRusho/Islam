@@ -17,12 +17,16 @@ Storing Islamic Contents
 
 ## Hadith
 * [Types of Hadith](https://www.muftisays.com/blog/abu+mohammed/455_18-10-2010/types-of-hadith.html)
+* [THE GOLDEN CHAIN OF NARRATORS](https://hadithanswers.com/the-golden-chain-of-narrators/)
 
 ## Sunnah 
 * [মিসওয়াক : প্রিয় নবীর প্রিয় সুন্নত](https://www.alkawsar.com/bn/article/2723/)
 
 ## Seerah
 * [Prophet Muhammad SallallahuAlayhiwassalam Biography - SEERAH](https://www.youtube.com/playlist?list=PLExCKwROz20G3bmpu7TfCJLC8QYNUyXgY)
+
+## Prophecies
+* [2020 ONLY A PROPHET COULD HAVE KNOWN THIS!](https://www.youtube.com/watch?v=yArWCkFKOq8&list=LL0SvEADxIC0qphr1HrODV-w&index=248)
 
 ## Lives of Prophets (Alaihimus Salam)
 * [Why did Ibraheem alaihissalam leave his wife Hajar and Son in the desert? - Sheikh Assim Al Hakeem](https://www.youtube.com/watch?v=QhK2AApPz2I)
@@ -51,6 +55,7 @@ Storing Islamic Contents
 * [মুসলিম পুরুষের দৃষ্টি](https://www.muslimmedia.info/2017/05/20/gaze-of-muslim-men)
 * [Islamic Ruling on Masturbation | Shaykh Uthman Bin Farooq](https://youtu.be/BQQR-GkqECo)
 * [The Truth about Music](https://www.youtube.com/watch?v=LJBngoRNUIA&list=TLPQMjQxMDIwMjEihi67TWbVUg&index=3)
+* [Islam and Ego by Nouman Ali Khan](https://www.youtube.com/watch?v=gI8SZjXZ0Wo&list=LL0SvEADxIC0qphr1HrODV-w&index=239)
 
 ## Bid'at
 * [বহুল প্রচলিত ১০০ বিদ'আত | Tafseerul Quran](https://youtube.com/playlist?list=PLrIXHGCtjCatU-Hq94XaUK1QicJWPGVvA)
@@ -67,6 +72,12 @@ Storing Islamic Contents
 * [From Hinduism to Islam - Priyanka Singh](https://www.youtube.com/watch?app=desktop&v=6pb9fXAMPKE&fbclid=IwAR3cIlKf077Gg224utKt9yeAGmWpJq5wyHqKUdhJHdlnTnGg7QHBh05HTyY)
 * [Bravest 16 year old Muslim Convert in Israel!](https://www.youtube.com/watch?v=RFnd0PLxcK0)
 * [I am Happy to be a Muslim - Cuban American Converts to Islam](https://www.youtube.com/watch?v=HbifACClIvg&list=LL0SvEADxIC0qphr1HrODV-w&index=256)
+* [He wanted to BAN Islam from the Netherlands - Look what happened to him](https://www.youtube.com/watch?v=11vOvqrfFAA&list=LL0SvEADxIC0qphr1HrODV-w&index=242)
+* [How the Bible Led Me to Islam: The Story of a Former Christian Youth Minister - Joshua Evans](https://www.youtube.com/watch?v=IYMKQKSV0bY&list=LL0SvEADxIC0qphr1HrODV-w&index=228&t=24s)
+
+## Transformations to be Practicing Muslims
+* [Story of Shaykh Uthman ibn Farooq | From Gangster Lifestyle to Imam | Inspirational](https://www.youtube.com/watch?v=kBiEZlfStwg&list=LL0SvEADxIC0qphr1HrODV-w&index=231)
+* [WHY I REMOVED ALL MY VIDEOS?](https://www.youtube.com/watch?v=9ZNEz_AtR-E&list=LL0SvEADxIC0qphr1HrODV-w&index=244)
 
 ## Research
 * [ইসলামকে কিভাবে জানবেন? কিভাবে ইসলাম নিয়ে গবেষণা করবেন? | The Believer Bangla](https://www.youtube.com/watch?v=m1bx7F0zxDI)
@@ -74,19 +85,21 @@ Storing Islamic Contents
 ## Islam and Science
 * [Evolutionist vs Shaykh Uthman - Surprise Ending](https://youtube.com/watch?v=BCxq3iTWLDY&feature=share)
 * [স্যার আইজ্যাক নিউটনের উপর মুসলিম প্রভাব](https://www.muslimmedia.info/2020/06/26/muslim-influence-on-newton)
+* [Science and Islam - Establishing Islamic Knowledge | Scientific Knowledge Documentary | Documental](https://www.youtube.com/watch?v=stJOl0PYHUE&list=LL0SvEADxIC0qphr1HrODV-w&index=246)
 
 ## Recitations
 * [সম্পূর্ণ কুরআন (১১৪ সুরা) শুধু মাত্র বাংলা তর্জমা তিলাওয়াত](https://www.youtube.com/playlist?list=PL6jOs1TTHB75x7HRDJsLVyoZ0RhC9KOp5)
 
 ## Q&A
 * [Celebrating birthdays is not allowed](https://islamqa.info/en/answers/1027/celebrating-birthdays-is-not-allowed)
-* [THE GOLDEN CHAIN OF NARRATORS](https://hadithanswers.com/the-golden-chain-of-narrators/)
+* [Birthdays - Halal or Haram?](https://www.youtube.com/watch?v=MSh-1bQyuOs&list=LL0SvEADxIC0qphr1HrODV-w&index=230)
 * [Is being a robotic engineer haram?](https://www.assimalhakeem.net/2021/02/14/is-being-a-robotic-engineer-haram-i-think-it-is-only-haram-if-u-make-the-robot-look-like-human-then-it-is-only-haram-so-is-making-any-kind-of-robots-haram/)
 * [Is Bitcoin / Cryptocurrency halal in Islamic point of view? - Assim al hakeem](https://www.youtube.com/watch?v=HFagu4Avf4M)
 * [বিট কয়েন বা ভার্চুয়াল মুদ্রা লেনদেনের হুকুম কী?](https://ahlehaqmedia.com/11236/)
 * [Is flipping a coin to make decisions permissible? What about Prophet (ﷺ) drawing lots? - Assim al hakeem](https://www.youtube.com/watch?v=RK3EjfyL7Zk)
 * [About working in a mobile banking company which belongs to a riba based commercial bank](https://www.assimalhakeem.net/2017/11/12/there-is-a-mobile-banking-company-in-bangladesh-namely-bkash-the-main-service-of-it-is-transferring-money-and-charging-commission-for-that-the-company-belongs-to-a-riba-based-commercial-banks-though/)
 * [বিকাশ ও রকেট লেনদেন কি জায়েজ?](https://ifatwa.info/2979/?fbclid=IwAR1VrELbPmrth-rP5BhENDCXVKaFjPwi_fD9Sh3Xp4OB74_uNsQDP46-Cxk)
+* [Is there Contagious Disease like Corona Virus in Islam? – Dr Zakir Naik](https://www.youtube.com/watch?v=rHwgtzRF6Zw&list=LL0SvEADxIC0qphr1HrODV-w&index=193)
 
 ## Debates and Conversations
 * [Evangelical Female Preachers vs Sheikh Uthman Ibn Farooq](https://youtu.be/3gTV8l-5WAI)
@@ -96,12 +109,14 @@ Storing Islamic Contents
 * [Christian Muslim Debate got a little hot – Missionary said ‘We hit the wall’ and left](https://www.youtube.com/watch?v=lfpUf1VkFn4&list=LL0SvEADxIC0qphr1HrODV-w&index=251)
 
 ## Refutations of Misconceptions about Islam
+* [Islam: Fact vs Fiction - Sheikh Uthman Ibn Farooq](https://www.youtube.com/watch?v=tp35LyOB6kg&list=LL0SvEADxIC0qphr1HrODV-w&index=226&t=2s)
+* [ইসলামের বিরুদ্ধে উত্থাপিত প্রশ্নসমূহের জবাব ও সংশয়ের নিরসন](https://response-to-anti-islam.com/)
+* [Responding to Common Misconceptions About Islam | Dr Sabeel Ahmed](https://www.youtube.com/watch?v=h3wSKiViv8w&list=LL0SvEADxIC0qphr1HrODV-w&index=259)
+* [কা’বা: মূর্তিপূজকদের মন্দির, নাকি ইবরাহীম (আ.) এর নির্মাণ করা ইবাদাতখানা?](https://www.muslimmedia.info/2018/08/20/is-kaba-a-pagan-temple)
+* [কেন মুহাম্মাদ (ﷺ) আরবের সকল মূর্তি ভেঙ্গে ফেলেছিলেন ? || রিসালাতের বিশেষ আইন কি?](https://www.youtube.com/watch?v=UDKD9fmoRvY&list=LL0SvEADxIC0qphr1HrODV-w&index=214)
 * ["Satanic Verses" debunked by Sheikh Uthman](https://youtu.be/_TRsZR7Q6fQ)
 * [A Refutation to the “Satanic Verses” Incident](https://siraajunmuneer.wordpress.com/2008/07/01/a-refutation-to-the-%E2%80%9Csatanic-verses%E2%80%9D-incident/)
 * [Q&A on "Satanic Verses"](https://islamqa.info/en/answers/4135/satanic-verses)
-* [ইসলামের বিরুদ্ধে উত্থাপিত প্রশ্নসমূহের জবাব ও সংশয়ের নিরসন](https://response-to-anti-islam.com/)
-* [কা’বা: মূর্তিপূজকদের মন্দির, নাকি ইবরাহীম (আ.) এর নির্মাণ করা ইবাদাতখানা?](https://www.muslimmedia.info/2018/08/20/is-kaba-a-pagan-temple)
-* [Responding to Common Misconceptions About Islam | Dr Sabeel Ahmed](https://www.youtube.com/watch?v=h3wSKiViv8w&list=LL0SvEADxIC0qphr1HrODV-w&index=259)
 
 ## Comparative Religion
 * [Historical reliability of the Gospels](https://en.wikipedia.org/wiki/Historical_reliability_of_the_Gospels)
