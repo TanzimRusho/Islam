@@ -35,6 +35,10 @@ Storing Islamic Contents
 ## Lives of Sahaba (Rodiallahu Anhum)
 * [List of Sahaba (Rodiallahu Anhum)](https://en.wikipedia.org/wiki/List_of_Sahabah)
 
+## History of Islam
+* [Fall Of Constantinople 1453 - Ottoman Wars DOCUMENTARY](https://www.youtube.com/watch?v=8W0OTGQEY8E&list=LL0SvEADxIC0qphr1HrODV-w&index=265)
+* [Battle of Yarmouk, 636 AD (Part 1/2) ⚔️ Storm gathers in the Middle East](https://www.youtube.com/watch?v=vL33R5F2Pkg&list=LL0SvEADxIC0qphr1HrODV-w&index=266)
+
 ## Arabic Learning
 * [Arabic Reading | Saajid Liphum](https://www.youtube.com/playlist?list=PLECBCcYUViwu1ZwDD-nX5fM_uEJDkENbx)
 * [Madinah Arabic: Book 1](https://www.youtube.com/playlist?list=PLECBCcYUViwvwj-sIWTMZUVW6xGBgBO1l)
@@ -66,6 +70,7 @@ Storing Islamic Contents
 * [আল্লাহ নাস্তিকদের বিষয়ে কি বলেছেন?](https://www.youtube.com/watch?v=tdin4_dFaXs)
 * [নব্য নাস্তিকদের নয়া মূর্খতা ও বিভ্রান্তি !](https://www.youtube.com/watch?v=sUExwTCt588)
 * [How to Give Dawah...to an Athiest? - Dr. Sabeel Ahmed](https://www.youtube.com/watch?v=D4ZbTpVoWMQ&list=LL0SvEADxIC0qphr1HrODV-w&index=250)
+* [দাওয়াহ কোর্স | যেসব প্রশ্নের উত্তর কখনও খ্রিস্টানরা দিতে পারবেনা | মুফতি যুবায়ের আহমাদ](https://www.youtube.com/watch?v=GIFuBlGynko&list=LL0SvEADxIC0qphr1HrODV-w&index=187)
 
 ## Converts to Islam
 * [Muslim Convert Stories](https://www.youtube.com/channel/UCKWs-9bZPIUkIErZar9dovw)
