@@ -71,6 +71,7 @@ Storing Islamic Contents
 * [নব্য নাস্তিকদের নয়া মূর্খতা ও বিভ্রান্তি !](https://www.youtube.com/watch?v=sUExwTCt588)
 * [How to Give Dawah...to an Athiest? - Dr. Sabeel Ahmed](https://www.youtube.com/watch?v=D4ZbTpVoWMQ&list=LL0SvEADxIC0qphr1HrODV-w&index=250)
 * [দাওয়াহ কোর্স | যেসব প্রশ্নের উত্তর কখনও খ্রিস্টানরা দিতে পারবেনা | মুফতি যুবায়ের আহমাদ](https://www.youtube.com/watch?v=GIFuBlGynko&list=LL0SvEADxIC0qphr1HrODV-w&index=187)
+* [Free Islamic Books on Dawah](https://www.allahsword.com/free_islamic_books_dawah.html)
 
 ## Converts to Islam
 * [Muslim Convert Stories](https://www.youtube.com/channel/UCKWs-9bZPIUkIErZar9dovw)
