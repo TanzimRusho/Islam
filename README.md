@@ -107,6 +107,7 @@ Storing Islamic Contents
 * [About working in a mobile banking company which belongs to a riba based commercial bank](https://www.assimalhakeem.net/2017/11/12/there-is-a-mobile-banking-company-in-bangladesh-namely-bkash-the-main-service-of-it-is-transferring-money-and-charging-commission-for-that-the-company-belongs-to-a-riba-based-commercial-banks-though/)
 * [বিকাশ ও রকেট লেনদেন কি জায়েজ?](https://ifatwa.info/2979/?fbclid=IwAR1VrELbPmrth-rP5BhENDCXVKaFjPwi_fD9Sh3Xp4OB74_uNsQDP46-Cxk)
 * [Is there Contagious Disease like Corona Virus in Islam? – Dr Zakir Naik](https://www.youtube.com/watch?v=rHwgtzRF6Zw&list=LL0SvEADxIC0qphr1HrODV-w&index=193)
+* [Should he go back and live in a kaafir country?](https://islamqa.info/en/27211)
 
 ## Debates and Conversations
 * [Evangelical Female Preachers vs Sheikh Uthman Ibn Farooq](https://youtu.be/3gTV8l-5WAI)
