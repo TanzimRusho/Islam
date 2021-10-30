@@ -123,6 +123,7 @@ Storing Islamic Contents
 * ["Satanic Verses" debunked by Sheikh Uthman](https://youtu.be/_TRsZR7Q6fQ)
 * [A Refutation to the “Satanic Verses” Incident](https://siraajunmuneer.wordpress.com/2008/07/01/a-refutation-to-the-%E2%80%9Csatanic-verses%E2%80%9D-incident/)
 * [Q&A on "Satanic Verses"](https://islamqa.info/en/answers/4135/satanic-verses)
+* [কুরআনের বিভিন্ন কিরাত এবং আহরুফ কি কুরআনের ভিন্ন ভিন্ন ভার্সন? | শায়খ আবু বকর মুহাম্মাদ যাকারিয়া](https://m.youtube.com/watch?v=cqS7GI4P6DA&feature=youtu.be)
 
 ## Comparative Religion
 * [Historical reliability of the Gospels](https://en.wikipedia.org/wiki/Historical_reliability_of_the_Gospels)
