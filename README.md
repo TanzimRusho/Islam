@@ -31,6 +31,7 @@ Storing Islamic Contents
 ## Prophecies
 * [Mind Blowing Prophecies of Prophet Muhammad ﷺ](https://youtu.be/xZIqd_-1Zus)
 * [2020 ONLY A PROPHET COULD HAVE KNOWN THIS!](https://www.youtube.com/watch?v=yArWCkFKOq8&list=LL0SvEADxIC0qphr1HrODV-w&index=248)
+* [New Atheism and Dajjal - The Link Uncovered](https://youtu.be/d0pLUc-1pcY)
 
 ## Lives of Prophets (Alaihimus Salam)
 * [Why did Ibraheem alaihissalam leave his wife Hajar and Son in the desert? - Sheikh Assim Al Hakeem](https://www.youtube.com/watch?v=QhK2AApPz2I)
