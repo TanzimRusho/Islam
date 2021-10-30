@@ -148,6 +148,9 @@ Storing Islamic Contents
 * [The Future of World Religions: Population Growth Projections, 2010-2050](https://www.pewforum.org/2015/04/02/religious-projections-2010-2050/)
 * [Saudi Teen Girl Flees to Canada, Media Loves It | Saajid Lipham](https://www.youtube.com/watch?v=nxUW-uE-qdg)
 
+## Publications
+* [বই প্রকাশের খরচ ও অন্যান্য প্রসঙ্গ](https://www.facebook.com/permalink.php?story_fbid=717103768484485&id=708657582662437)
+
 ## People of Cave (Media)
 * [People of Cave - Google Site (Under Construction)](https://sites.google.com/view/peopleofcave/home)
 * [People of Cave - Youtube](https://www.youtube.com/channel/UCiXoSDjt_1iA1mGe2_kEHCw) 
