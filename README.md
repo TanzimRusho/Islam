@@ -29,6 +29,7 @@ Storing Islamic Contents
 * [Prophet Muhammad ﷺ Biography - SEERAH | Sheikh Uthman Ibn Forooq | Masjid Ribat](https://www.youtube.com/playlist?list=PLExCKwROz20G3bmpu7TfCJLC8QYNUyXgY)
 
 ## Prophecies
+* [Mind Blowing Prophecies of Prophet Muhammad ﷺ](https://youtu.be/xZIqd_-1Zus)
 * [2020 ONLY A PROPHET COULD HAVE KNOWN THIS!](https://www.youtube.com/watch?v=yArWCkFKOq8&list=LL0SvEADxIC0qphr1HrODV-w&index=248)
 
 ## Lives of Prophets (Alaihimus Salam)
