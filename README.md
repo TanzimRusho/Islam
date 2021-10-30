@@ -15,6 +15,9 @@ Storing Islamic Contents
 ## Memorizing Al-Qur'an
 * [How to Memorize Qur'an](https://www.youtube.com/playlist?list=PLECBCcYUViwuFLmshBomOVlIzfzvMubUF) 
 
+## Recitations
+* [সম্পূর্ণ কুরআন (১১৪ সুরা) শুধু মাত্র বাংলা তর্জমা তিলাওয়াত](https://www.youtube.com/playlist?list=PL6jOs1TTHB75x7HRDJsLVyoZ0RhC9KOp5)
+
 ## Hadith
 * [Types of Hadith](https://www.muftisays.com/blog/abu+mohammed/455_18-10-2010/types-of-hadith.html)
 * [THE GOLDEN CHAIN OF NARRATORS](https://hadithanswers.com/the-golden-chain-of-narrators/)
@@ -23,7 +26,7 @@ Storing Islamic Contents
 * [মিসওয়াক : প্রিয় নবীর প্রিয় সুন্নত](https://www.alkawsar.com/bn/article/2723/)
 
 ## Seerah
-* [Prophet Muhammad SallallahuAlayhiwassalam Biography - SEERAH](https://www.youtube.com/playlist?list=PLExCKwROz20G3bmpu7TfCJLC8QYNUyXgY)
+* [Prophet Muhammad ﷺ Biography - SEERAH | Sheikh Uthman Ibn Forooq | Masjid Ribat](https://www.youtube.com/playlist?list=PLExCKwROz20G3bmpu7TfCJLC8QYNUyXgY)
 
 ## Prophecies
 * [2020 ONLY A PROPHET COULD HAVE KNOWN THIS!](https://www.youtube.com/watch?v=yArWCkFKOq8&list=LL0SvEADxIC0qphr1HrODV-w&index=248)
@@ -92,9 +95,6 @@ Storing Islamic Contents
 * [Evolutionist vs Shaykh Uthman - Surprise Ending](https://youtube.com/watch?v=BCxq3iTWLDY&feature=share)
 * [স্যার আইজ্যাক নিউটনের উপর মুসলিম প্রভাব](https://www.muslimmedia.info/2020/06/26/muslim-influence-on-newton)
 * [Science and Islam - Establishing Islamic Knowledge | Scientific Knowledge Documentary | Documental](https://www.youtube.com/watch?v=stJOl0PYHUE&list=LL0SvEADxIC0qphr1HrODV-w&index=246)
-
-## Recitations
-* [সম্পূর্ণ কুরআন (১১৪ সুরা) শুধু মাত্র বাংলা তর্জমা তিলাওয়াত](https://www.youtube.com/playlist?list=PL6jOs1TTHB75x7HRDJsLVyoZ0RhC9KOp5)
 
 ## Q&A
 * [Celebrating birthdays is not allowed](https://islamqa.info/en/answers/1027/celebrating-birthdays-is-not-allowed)
