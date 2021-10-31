@@ -143,7 +143,7 @@ Storing Islamic Contents
 * [অর্ধেক দ্বীন ডট কম](https://ordhekdeen.com/)
 
 ## Business/Finance
-* [টাকা vs অর্থ - কাগজের টাকা কি আসলেই টাকা? || টাকার গোপন রহস্য - পর্ব ১\৫](https://www.youtube.com/watch?v=uhTJDJAnylE)
+* [টাকার গোপন রহস্য](https://youtube.com/playlist?list=PLo-2VxJrnWwaMjQr0d2LsQ7UR0e9i1vA2)
 
 ## Islamic Apps
 * [Dua and Azkar](https://play.google.com/store/apps/details?id=com.ls.arabic&hl=en&gl=US)
