@@ -4,7 +4,11 @@ Storing Islamic Contents
 ## Allah Subhanahu Wa Ta'ala's Names
 * [আল-গাফুর, আল-গাফির, আল-গাফফার](https://youtu.be/vW7snSkC7eI)
 
+## Swalah 
+* [The Prophet (ﷺ)'s Prayer Described - Assim al-Hakeem](https://www.youtube.com/watch?v=vx1rz-28HNk)
+
 ## Al-Qur'an Tafsir
+* [Ma'ariful Quran](https://www.kalamullah.com/maariful-quran.html?__cf_chl_jschl_tk__=pmd_px15Kt81FUHuvm1g1chhtPdA1XzIYJoSryhxJNSbL94-1635738406-0-gqNtZGzNAiWjcnBszQil)
 * [Complete Tafsir of Surah Al-Mulk by Nouman Ali Khan (Part 1)](https://youtu.be/m3bSWAW4Nms)
 * [Explanation of Soorah Al-Nasr](https://islamweb.net/en/article/135451/explanation-of-soorah-an-nasr)
 * [Juz Amma Tafseer | Bayyinah Podcast](https://podcast.bayyinah.com/category/juz_amma/)
