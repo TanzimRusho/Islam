@@ -2,6 +2,8 @@
 Storing Islamic Contents
 
 ## Allah Subhanahu Wa Ta'ala's Names
+* [99 Names of Allah ﷻ | Web App](https://99names.app/?fbclid=IwAR0mpfMrfCWW5-msyZbbeIsuiik6orBnZOhQgq3cBoSljBXX6Hmf5L2J_8Q)
+* [99 Names of Allah ﷻ (Al Asma Ul Husna)](https://99namesofallah.name/?fbclid=IwAR3OKAbeshyUw_EnDNDCkZLmjyFItQYpGpux0KINNLl-zvstMZfZoBKfz4Y)
 * [আল-গাফুর, আল-গাফির, আল-গাফফার](https://youtu.be/vW7snSkC7eI)
 
 ## Swalah 
@@ -18,11 +20,19 @@ Storing Islamic Contents
 
 ## Memorizing Al-Qur'an
 * [How to Memorize Qur'an](https://www.youtube.com/playlist?list=PLECBCcYUViwuFLmshBomOVlIzfzvMubUF) 
+* [Memorize Qur'an App](https://memorizequran.app/main)
+
+## Arabic Learning
+* [অর্থ বুঝে কুরআন পড়ি and some other resources | Muhammad Masood's Site](https://mdmasood.blogspot.com/2021/03/blog-post_19.html?spref=fb&fbclid=IwAR22jRzuveNn83bILue8SCxvRIuem5CA3BdhSgm3g7OuSuTi0JN-N2kXSME)
+* [Arabic Reading | Saajid Liphum](https://www.youtube.com/playlist?list=PLECBCcYUViwu1ZwDD-nX5fM_uEJDkENbx)
+* [Madinah Arabic: Book 1](https://www.youtube.com/playlist?list=PLECBCcYUViwvwj-sIWTMZUVW6xGBgBO1l)
+* [Learning Arabic Through Prayer](https://www.youtube.com/playlist?list=PLECBCcYUViwsFMaIzLnVWg8qJR9SsXlWo)
 
 ## Recitations
 * [সম্পূর্ণ কুরআন (১১৪ সুরা) শুধু মাত্র বাংলা তর্জমা তিলাওয়াত](https://www.youtube.com/playlist?list=PL6jOs1TTHB75x7HRDJsLVyoZ0RhC9KOp5)
 
 ## Hadith
+* [sunnah.com](https://sunnah.com/?fbclid=IwAR1KAj8SzKiTNINXBCpqT5jLWu38HVdmkLRNRP_FRis3tHLDqBZUH1RA6CM)
 * [Types of Hadith](https://www.muftisays.com/blog/abu+mohammed/455_18-10-2010/types-of-hadith.html)
 * [THE GOLDEN CHAIN OF NARRATORS](https://hadithanswers.com/the-golden-chain-of-narrators/)
 
@@ -47,11 +57,6 @@ Storing Islamic Contents
 ## History of Islam
 * [Fall Of Constantinople 1453 - Ottoman Wars DOCUMENTARY](https://www.youtube.com/watch?v=8W0OTGQEY8E&list=LL0SvEADxIC0qphr1HrODV-w&index=265)
 * [Battle of Yarmouk, 636 AD (Part 1/2) ⚔️ Storm gathers in the Middle East](https://www.youtube.com/watch?v=vL33R5F2Pkg&list=LL0SvEADxIC0qphr1HrODV-w&index=266)
-
-## Arabic Learning
-* [Arabic Reading | Saajid Liphum](https://www.youtube.com/playlist?list=PLECBCcYUViwu1ZwDD-nX5fM_uEJDkENbx)
-* [Madinah Arabic: Book 1](https://www.youtube.com/playlist?list=PLECBCcYUViwvwj-sIWTMZUVW6xGBgBO1l)
-* [Learning Arabic Through Prayer](https://www.youtube.com/playlist?list=PLECBCcYUViwsFMaIzLnVWg8qJR9SsXlWo)
 
 ## Islamic Blogs 
 * [How we should read the Quran](https://onepathnetwork.com/how-we-should-read-the-quran/?*%20gclid=Cj0KCQjws4aKBhDPARIsAIWH0JVdQAdgZnJhptRUiUe47luOAC41Vg78u4AEZv4CMCNL26PsG3-h62YaAmcQEALw_wcB)
@@ -81,6 +86,7 @@ Storing Islamic Contents
 * [How to Give Dawah...to an Athiest? - Dr. Sabeel Ahmed](https://www.youtube.com/watch?v=D4ZbTpVoWMQ&list=LL0SvEADxIC0qphr1HrODV-w&index=250)
 * [দাওয়াহ কোর্স | যেসব প্রশ্নের উত্তর কখনও খ্রিস্টানরা দিতে পারবেনা | মুফতি যুবায়ের আহমাদ](https://www.youtube.com/watch?v=GIFuBlGynko&list=LL0SvEADxIC0qphr1HrODV-w&index=187)
 * [Free Islamic Books on Dawah](https://www.allahsword.com/free_islamic_books_dawah.html)
+* [Online Islamic Da'wah Narratives in the UK: The Case of iERA](https://etheses.bham.ac.uk/id/eprint/7235/1/Baz17PhD.pdf)
 
 ## Converts to Islam
 * [Muslim Convert Stories](https://www.youtube.com/channel/UCKWs-9bZPIUkIErZar9dovw)
@@ -89,6 +95,7 @@ Storing Islamic Contents
 * [I am Happy to be a Muslim - Cuban American Converts to Islam](https://www.youtube.com/watch?v=HbifACClIvg&list=LL0SvEADxIC0qphr1HrODV-w&index=256)
 * [He wanted to BAN Islam from the Netherlands - Look what happened to him](https://www.youtube.com/watch?v=11vOvqrfFAA&list=LL0SvEADxIC0qphr1HrODV-w&index=242)
 * [How the Bible Led Me to Islam: The Story of a Former Christian Youth Minister - Joshua Evans](https://www.youtube.com/watch?v=IYMKQKSV0bY&list=LL0SvEADxIC0qphr1HrODV-w&index=228&t=24s)
+* [The Purpose of Life - Jeffrey Lang](https://www.youtube.com/watch?v=ifllgTA2pmY)
 
 ## Transformations to be Practicing Muslims
 * [Story of Shaykh Uthman ibn Farooq | From Gangster Lifestyle to Imam | Inspirational](https://www.youtube.com/watch?v=kBiEZlfStwg&list=LL0SvEADxIC0qphr1HrODV-w&index=231)
@@ -113,6 +120,7 @@ Storing Islamic Contents
 * [বিকাশ ও রকেট লেনদেন কি জায়েজ?](https://ifatwa.info/2979/?fbclid=IwAR1VrELbPmrth-rP5BhENDCXVKaFjPwi_fD9Sh3Xp4OB74_uNsQDP46-Cxk)
 * [Is there Contagious Disease like Corona Virus in Islam? – Dr Zakir Naik](https://www.youtube.com/watch?v=rHwgtzRF6Zw&list=LL0SvEADxIC0qphr1HrODV-w&index=193)
 * [Should he go back and live in a kaafir country?](https://islamqa.info/en/27211)
+* [অযু ছাড়া কুরআন স্পর্শ করা যাবে কিনা?](https://www.facebook.com/Dr.KhandakerAbdullahJahangirOfficial/videos/2621625764765884/)
 
 ## Debates and Conversations
 * [Evangelical Female Preachers vs Sheikh Uthman Ibn Farooq](https://youtu.be/3gTV8l-5WAI)
@@ -154,6 +162,7 @@ Storing Islamic Contents
 * [ইসলামবিরোধীদের জবাব Response to Anti-Islam](https://play.google.com/store/apps/details?id=response.to.anti.islam&hl=en&gl=US)
 
 ## Resources
+* [Corpus Qur'an | Java API Overview](https://corpus.quran.com/java/overview.jsp)
 * [iERA Downloads Archive](https://iera.org/downloads/)
 * [Dr. Khondoker Abdullah Jahangir Books](https://www.islamicboisomahar.in/2017/08/blog-post_60.html)
 
