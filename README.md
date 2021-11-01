@@ -88,7 +88,7 @@ Storing Islamic Contents
 * [Free Islamic Books on Dawah](https://www.allahsword.com/free_islamic_books_dawah.html)
 * [Online Islamic Da'wah Narratives in the UK: The Case of iERA](https://etheses.bham.ac.uk/id/eprint/7235/1/Baz17PhD.pdf)
 
-## Converts to Islam
+## Reverts to Islam
 * [Muslim Convert Stories](https://www.youtube.com/channel/UCKWs-9bZPIUkIErZar9dovw)
 * [From Hinduism to Islam - Priyanka Singh](https://www.youtube.com/watch?app=desktop&v=6pb9fXAMPKE&fbclid=IwAR3cIlKf077Gg224utKt9yeAGmWpJq5wyHqKUdhJHdlnTnGg7QHBh05HTyY)
 * [Bravest 16 year old Muslim Convert in Israel!](https://www.youtube.com/watch?v=RFnd0PLxcK0)
@@ -96,6 +96,7 @@ Storing Islamic Contents
 * [He wanted to BAN Islam from the Netherlands - Look what happened to him](https://www.youtube.com/watch?v=11vOvqrfFAA&list=LL0SvEADxIC0qphr1HrODV-w&index=242)
 * [How the Bible Led Me to Islam: The Story of a Former Christian Youth Minister - Joshua Evans](https://www.youtube.com/watch?v=IYMKQKSV0bY&list=LL0SvEADxIC0qphr1HrODV-w&index=228&t=24s)
 * [The Purpose of Life - Jeffrey Lang](https://www.youtube.com/watch?v=ifllgTA2pmY)
+* [Daniel Haqiqatjou's Story: From Shia to Sunni](https://youtu.be/7NHn16CQEek)
 
 ## Transformations to be Practicing Muslims
 * [Story of Shaykh Uthman ibn Farooq | From Gangster Lifestyle to Imam | Inspirational](https://www.youtube.com/watch?v=kBiEZlfStwg&list=LL0SvEADxIC0qphr1HrODV-w&index=231)
