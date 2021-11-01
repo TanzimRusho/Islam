@@ -143,6 +143,7 @@ Storing Islamic Contents
 ## Comparative Religion
 * [Historical reliability of the Gospels](https://en.wikipedia.org/wiki/Historical_reliability_of_the_Gospels)
 * [MUHAMMAD ﷺ AND MADINAH IN THE BIBLE](https://www.youtube.com/watch?v=4s2UTAtSKd0)
+* [খ্রিস্টধর্মের ৫০০ বছরের ইতিহাস যা ৯৯% খ্রিস্টানরাই জানেন না।](https://youtu.be/gjNxtQrCej8)
 
 ## Secret Societies
 * [Illuminati, Freemasons, Conspiracies, Secret Societies](https://www.youtube.com/watch?v=RTu_trtsrfE&list=TLPQMjQxMDIwMjEihi67TWbVUg&index=2)
