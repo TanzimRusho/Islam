@@ -158,6 +158,7 @@ Storing Islamic Contents
 
 ## Business/Finance
 * [টাকার গোপন রহস্য](https://youtube.com/playlist?list=PLo-2VxJrnWwaMjQr0d2LsQ7UR0e9i1vA2)
+* [The Salt Trade of Ancient West Africa](https://www.worldhistory.org/article/1342/the-salt-trade-of-ancient-west-africa/)
 
 ## Islamic Apps
 * [Dua and Azkar](https://play.google.com/store/apps/details?id=com.ls.arabic&hl=en&gl=US)
