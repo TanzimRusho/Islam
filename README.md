@@ -96,6 +96,7 @@ Storing Islamic Contents
 * [He wanted to BAN Islam from the Netherlands - Look what happened to him](https://www.youtube.com/watch?v=11vOvqrfFAA&list=LL0SvEADxIC0qphr1HrODV-w&index=242)
 * [How the Bible Led Me to Islam: The Story of a Former Christian Youth Minister - Joshua Evans](https://www.youtube.com/watch?v=IYMKQKSV0bY&list=LL0SvEADxIC0qphr1HrODV-w&index=228&t=24s)
 * [The Purpose of Life - Jeffrey Lang](https://www.youtube.com/watch?v=ifllgTA2pmY)
+* [Winning Our Children Back To Islam - Jeffrey Lang](https://youtu.be/Xx57mZ8wgzs)
 * [Daniel Haqiqatjou's Story: From Shia to Sunni](https://youtu.be/7NHn16CQEek)
 
 ## Transformations to be Practicing Muslims
