@@ -123,6 +123,7 @@ Storing Islamic Contents
 * [Is there Contagious Disease like Corona Virus in Islam? – Dr Zakir Naik](https://www.youtube.com/watch?v=rHwgtzRF6Zw&list=LL0SvEADxIC0qphr1HrODV-w&index=193)
 * [Should he go back and live in a kaafir country?](https://islamqa.info/en/27211)
 * [অযু ছাড়া কুরআন স্পর্শ করা যাবে কিনা?](https://www.facebook.com/Dr.KhandakerAbdullahJahangirOfficial/videos/2621625764765884/)
+* [ছেলে এখনও বেকার কিন্তু দ্বীনদার। তার বাবা মার সামর্থ আছে মেয়ের ভরণ পোষণের খরচ দেওয়ার। এমন ছেলের পক্ষ থেকে বিয়ের প্রস্তাব আসলে একজন মেয়ের বাবার কি করা উচিত? বেকার ছেলের কাছে কি বিয়ে দেয়া উচিত? ইসলাম কি বলে এ ব্যাপারে?](https://ifatwa.info/22661/?show=22661#q22661)
 
 ## Debates and Conversations
 * [Evangelical Female Preachers vs Sheikh Uthman Ibn Farooq](https://youtu.be/3gTV8l-5WAI)
